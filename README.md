@@ -1,1 +1,0 @@
-# Rivadeneira-Guanuchi-Ruben-Jahir-
